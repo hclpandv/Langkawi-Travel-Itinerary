@@ -30,7 +30,8 @@ Kuala Lumpur KUL   ✈  Langkawi LGK
 ####  `[Wed, 24 Nov 2021]`  
 * 09:00 AM : Hire Car and self drive to [*Tanjung Rhu Beach*](https://www.google.com/maps/place/Tanjung+Rhu+Beach/@6.4504375,99.8058892,15z/data=!3m1!4b1!4m5!3m4!1s0x304c7c9750aa017d:0xb60a522f3f148e84!8m2!3d6.4543901!4d99.8219476) 
 
-#### `[Thu, 25 Nov 2021]`
+#### `[Thu, 25 Nov 2021]`  
+
 * Taxi to airport
 ```
 25Nov2021 | AirAsia Flight AK 6309
