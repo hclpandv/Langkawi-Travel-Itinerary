@@ -36,6 +36,7 @@ Kuala Lumpur KUL   ✈  Langkawi LGK
 * No agenda
 * Do nothing
 * Beers and Beaches
+* Check if JetSki Island hopping trip allows kids (*Ceneng* or *Tengah*)
 
 #### `[Thu, 25 Nov 2021]`  
 
