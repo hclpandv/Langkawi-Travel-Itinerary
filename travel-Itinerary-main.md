@@ -27,8 +27,8 @@ Kuala Lumpur KUL   ✈  Langkawi LGK
 
 ####  `[Tue, 23 Nov 2021]` 
 * 08:00 AM : Drive to 7 waterfalls hike starting point and hike as far as we can as per confort.
-* 10:30 AM : Brunch at some place (Need to figure out)
-* 11:00 AM : Drive to cable car point but tickets and enjoy skybridge.
+* 10:30 AM : Drive to [*Oriental Village*](https://www.langkawi-insight.com/langkawi_0000b0.htm) (Cable car point with many resourants in the complex)
+* 11:00 AM : Have brunch and buy cable car ticket and enjoy !!
 * 04:00 PM : Drive to Datai    
 * 06:00 PM : Back to hotel.
 
