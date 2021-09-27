@@ -1,6 +1,6 @@
-# [Trip To Langkawi](https://en.wikipedia.org/wiki/Langkawi)
+# [Trip To Langkawi | 3 Days Travel Itinerary](https://en.wikipedia.org/wiki/Langkawi)
 
-### Dates `21Nov2021 to 25Nov2021 | Travel itinerary` 
+### Dates `21Nov2021 to 25Nov2021` 
 ***
 #### `[Sun, 21 Nov 2021]`
 
