@@ -29,7 +29,10 @@ Kuala Lumpur KUL   ✈  Langkawi LGK
 * 08:00 AM : Drive to 7 waterfalls hike [*starting point*](https://www.google.com/search?tbs=lrf:!1m4!1u2!2m2!2m1!1e1!2m1!1e2!3sIAE,lf:1,lf_ui:2&tbm=lcl&q=where%20is%207%20waterfall%20langkawi%20starting%20point&rflfq=1&num=10&ved=2ahUKEwi57qTXip7zAhX54zgGHQJCDnwQtgN6BAgGEAc&rlst=f#rlfi=hd:;si:10297597141436953015,l,Cix3aGVyZSBpcyA3IHdhdGVyZmFsbCBsYW5na2F3aSBzdGFydGluZyBwb2ludEiR-oOplZaAgAhaMxAAEAEQAxAEGAAYARgCIiM3IHdhdGVyZmFsbCBsYW5na2F3aSBzdGFydGluZyBwb2ludJIBC3BhcmtpbmdfbG90mgEjQ2haRFNVaE5NRzluUzBWSlEwRm5TVU5SYmpjdFJVcDNFQUWqASsQASonIiM3IHdhdGVyZmFsbCBsYW5na2F3aSBzdGFydGluZyBwb2ludCgA;mv:[[6.3834135,99.6741239],[6.3773132,99.6739834]]) and hike as far as we can as per confort. [*18 KMs from Ceneng*]
 * 10:30 AM : Drive to [*Oriental Village*](https://www.langkawi-insight.com/langkawi_0000b0.htm) (Cable car point with many restaurants in the complex) [*1.5 KMs*]
 * 11:00 AM : Have brunch and buy cable car ticket and enjoy !!
-* 04:00 PM : Drive to Datai(sandy skull beach on the way) [*20 Kms*]  
+* 04:00 PM : Drive to Datai [*20 Kms*]
+*On The Way*
+1. [Temurun Waterfall](https://www.google.com/maps/place/Temurun+Waterfall/@6.4339943,99.7082199,15z/data=!4m5!3m4!1s0x0:0x6b7e106a66289f03!8m2!3d6.4339943!4d99.7082199)
+2. [Sandy Skull Beach](https://www.google.com/maps/place/Sandy+Skulls+Beach/@6.4306706,99.7238485,17z/data=!3m1!4b1!4m5!3m4!1s0x304c7a77759d854f:0xb5c9d68b7fdd5c3!8m2!3d6.4306215!4d99.725943)
 * 06:00 PM : Back to hotel. [*32 KMs*]
 
 ####  `[Wed, 24 Nov 2021]`  
