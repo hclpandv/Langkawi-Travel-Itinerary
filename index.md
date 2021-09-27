@@ -12,7 +12,8 @@ Kuala Lumpur KUL   ✈  Langkawi LGK
 ```  
 * Taxi to hotel [*Aloft Langkawi Pantai Tengah*](https://www.booking.com/hotel/my/aloft-langkawi-pantai-tengah.en-gb.html?aid=356980;label=gog235jc-1DCAsooQFCHGFsb2Z0LWxhbmdrYXdpLXBhbnRhaS10ZW5nYWhIM1gDaKEBiAEBmAEJuAEXyAEM2AED6AEBiAIBqAIDuALDy6uKBsACAdICJGVlMWQ2OTkwLWE1MzItNDBmNi05NzUwLTQyNDBjNmZjODg5ZNgCBOACAQ;sid=56154df37de3f1e9697d0b421db3db09;dist=0&keep_landing=1&sb_price_type=total&type=total&)
 * Check-in and stay overnight
-* browse hotel and *Tengah Beach*
+* browse hotel and *Tengah Beach* 
+* Dinner at Beach
 
 ***
 ####  `[Mon, 22 Nov 2021]` | Road trip to `east` side of the *Pulau Langkawi*
