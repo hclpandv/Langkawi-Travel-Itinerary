@@ -15,7 +15,7 @@ Kuala Lumpur KUL   ✈  Langkawi LGK
 * browse hotel and *Tengah Beach*
 
 ***
-####  `[Mon, 22 Nov 2021]` | Road trip to `east*` side of the *Pulau Langkawi*
+####  `[Mon, 22 Nov 2021]` | Road trip to `east` side of the *Pulau Langkawi*
 
 * Getup early in the morning 
 * Get Freshened, Use Swimming Pool with kids  
