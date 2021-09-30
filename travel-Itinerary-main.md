@@ -13,6 +13,7 @@ Kuala Lumpur KUL   ✈  Langkawi LGK
 * Taxi to hotel [*Aloft Langkawi Pantai Tengah*](https://www.booking.com/hotel/my/aloft-langkawi-pantai-tengah.en-gb.html?aid=356980;label=gog235jc-1DCAsooQFCHGFsb2Z0LWxhbmdrYXdpLXBhbnRhaS10ZW5nYWhIM1gDaKEBiAEBmAEJuAEXyAEM2AED6AEBiAIBqAIDuALDy6uKBsACAdICJGVlMWQ2OTkwLWE1MzItNDBmNi05NzUwLTQyNDBjNmZjODg5ZNgCBOACAQ;sid=56154df37de3f1e9697d0b421db3db09;dist=0&keep_landing=1&sb_price_type=total&type=total&)
 * Check-in and stay overnight
 * browse hotel and *Tengah Beach*
+* Dinner at [Colonial India Restaurant](https://www.google.com/maps/place/Colonial+India+Restaurant/@6.2759076,99.7336275,20z/data=!4m12!1m6!3m5!1s0x304b87d29976bc77:0x2e2e15f53caab97!2sColonial+India+Restaurant!8m2!3d6.2758389!4d99.7339105!3m4!1s0x304b87d29976bc77:0x2e2e15f53caab97!8m2!3d6.2758389!4d99.7339105) [*400 Mtrs from Hotel*]
 
 ***
 ####  `[Mon, 22 Nov 2021]`
